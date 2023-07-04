@@ -5,3 +5,4 @@
 ![Certificate 3](https://user-images.githubusercontent.com/56443166/174234816-49c5fdfc-8181-466f-89c8-ece854c6e392.png)
 ![Certificate 4](https://github.com/aseerintiser/Google-UX-Design-Professional-Certificate/assets/56443166/97adc1d8-9233-4edf-84fa-7dde14fd00d2)
 ![Certificate 5](https://github.com/aseerintiser/Google-UX-Design-Professional-Certificate/assets/56443166/55812e1a-56dc-4218-8248-9eee69bf0cd2)
+![Certificate 6](https://github.com/aseerintiser/Google-UX-Design-Professional-Certificate/assets/56443166/bb939f97-8fb1-424d-bd71-d2cde9939e5e)
